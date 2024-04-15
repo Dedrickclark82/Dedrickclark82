@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects that will enhance my understanding of the field
 - 📫 How to reach me is my email at dedrickclark15@gmail.com 
 - 😄 Pronouns: ... He and him
-- ⚡ Fun fact: ... Laid back, funny fun, and kind -hearted individual
+- ⚡ Fun fact: ...I am a laid back, funny, fun, and a kind-hearted individual
 
 <!---
 Dedrickclark82/Dedrickclark82 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
